@@ -97,6 +97,5 @@ To customize the portfolio:
 
 For questions or customizations, contact:
 - Email: soumyadepmondal2372001@gmail.com
-- Phone: (+91) 7439592276
 - LinkedIn: [Soumyadeep Mondal](https://www.linkedin.com/in/soumyadeep-mondal-b9b9b91b9/)
 
